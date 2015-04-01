@@ -1,1 +1,1 @@
-There is too much. You die of a heart attack from eating too much. 
+There is too much. You die of an exploading belly from eating too much. 
